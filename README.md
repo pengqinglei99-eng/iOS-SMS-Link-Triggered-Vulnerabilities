@@ -1013,4 +1013,4 @@ iPhone 短信与链接攻击不是一种单一技术，而是一组从社会工�
 
 ---
 
-咨询ios系统请咨询 telegram：@pengqing666
+咨询ios系统请咨询 telegram：https://t.me/one00190
